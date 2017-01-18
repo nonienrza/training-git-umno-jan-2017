@@ -15,4 +15,12 @@ payoh nye weiii
 
 weiii
 
-changes stash - nonie cuba
+nonie cuba
+
+sy budak br belajar
+
+tukar lagi weiii
+
+zee suruh ubah
+
+
